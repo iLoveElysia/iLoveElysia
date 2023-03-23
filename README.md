@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FutureAppleWei
+- 👋 Hi, I’m @iLoveElysia
 - 👀 I’m interested in Computer Science, Photography and Game
 - 🌱 I’m currently hard learning English
 - 📫 You can use email to reach me (pghkipy@outlook.com)
